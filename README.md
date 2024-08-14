@@ -1,4 +1,4 @@
-# DEPAESINWARE
+# DEPAESWARE
 
                           
                      &&##BBBBBBB#&
@@ -47,3 +47,21 @@
     5P??JJ7!!!!!!!!77777?5G&@@@@#55YJJ!!!!!!B        
     BPYYYYJ??777777??YG#@@@@&BPJ777!JY!!!!!!#
     @&G55YYJJJ??7J5B&@@&&#GY?7777YBB5J!!!!!7&
+
+## ❓What is?
+
+
+## 🔧Pathologies currently detected
+
+📎Crack
+
+📎Infiltration
+
+📎Carbonation
+
+![Texto alternativo]()
+
+## 📏How to use
+
+💲good studies to all💲
+⭐by:Marcio Vinicius
